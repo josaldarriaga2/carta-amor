@@ -1,2 +1,0 @@
-# carta-amor
-carta-amor
